@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning how to stay always happy
 - 💞️ I’m looking to collaborate on how to make crazy
 - 📫 How to reach me X @RH_CHILLI
-- 😄 Pronouns: As Hot Ass Chilli
-- ⚡ Fun fact: I'm as hot as your BF or GF or Wife
+- 😄 Pronouns: Red Hot Chilli
+- ⚡ Fun fact: I'm as hot ass your BF/GF/Wife
 
 <!---
 rhchilli/rhchilli is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
